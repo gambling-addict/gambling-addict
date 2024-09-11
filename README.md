@@ -1,4 +1,4 @@
-<img src="https://media.tenor.com/Jiiemy3hCrAAAAAM/fish.gif" alt="Fish Spinning GIF - Fish Spinning - Discover &amp; Share GIFs"/>![image](https://github.com/user-attachments/assets/a7d4d988-6c72-4e18-88c2-e46f925894ff)
+<img src="https://media.tenor.com/Jiiemy3hCrAAAAAM/fish.gif" alt="Fish Spinning GIF
 
 
 <!--
