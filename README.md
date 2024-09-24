@@ -1,3 +1,4 @@
+i have absolutely nothing to announce!!! int with me if you want!! (i don't talk first)
 
 ![Woah](https://komarev.com/ghpvc/?username=gambling-addict)
 
