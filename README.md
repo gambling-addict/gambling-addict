@@ -1,11 +1,12 @@
-i have absolutely nothing to announce!!! int with me if you want!! (i don't talk first)
+> i have absolutely nothing to announce!!! int with me if you want!! (i don't talk first)
 
 ![Woah](https://komarev.com/ghpvc/?username=gambling-addict)
 
-
+__my discord is: fforcass__ |just incase you want to talk or something
 
 
 <img src="https://media.tenor.com/2ewHqOqCxHgAAAAi/shark.gif" alt="a computer generated image of a shark swimming on a white background"/>
+
 
 
 
