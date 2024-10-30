@@ -1,6 +1,6 @@
-　　　　　　　　　　　　_Be nice and sign my atabook?_ <br />
+　　　　　　　　　　　_Be nice and sign my atabook?_ <br />
 
-　　　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
+　　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
 <br />
 
 
@@ -9,8 +9,7 @@
 
 
 
-
-　　　　　　　　　　　　　　　　  [Atabook](https://forcas.atabook.org/)　　　　[Strawpage](https://4cas.straw.page/)　　　　[Pronounspage](https://en.pronouns.page/@forcas_)　　　　[Listography](https://listography.com/5283121506?m=0580652416)
+　　　　　　　　　　　　　　　  [Atabook](https://forcas.atabook.org/)　　　　[Strawpage](https://4cas.straw.page/)　　　　[Pronounspage](https://en.pronouns.page/@forcas_)　　　　[Listography](https://listography.com/5283121506?m=0580652416)
 
 
 
