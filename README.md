@@ -7,7 +7,7 @@
 
 　　　　　　　　　　　　　　　![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif) <br />
 
-![Alt Text](https://media.tenor.com/rbvBpcaxKWEAAAAj/stars-galaxy.gif)![Alt Text](https://pbs.twimg.com/media/GCIUkxVXAAApxhs.png)
+![Alt Text](https://media.tenor.com/xIAMLhLZwXIAAAAi/sparkles-sparkle.gif)![Alt Text](https://pbs.twimg.com/media/GCIUkxVXAAApxhs.png)
 
 
 
