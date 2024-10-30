@@ -1,4 +1,4 @@
-　　　　　　　　　　　_Be nice and sign my atabook?_ <br />
+　　　　　　　　　　　_" 𝐂𝐨𝐥𝐝 𝐰𝐚𝐭𝐞𝐫 𝐟𝐞𝐞𝐥𝐬 𝐰𝐚𝐫𝐦 𝐰𝐡𝐞𝐧 𝐲𝐨𝐮𝐫 𝐡𝐚𝐧𝐝𝐬 𝐚𝐫𝐞 𝐟𝐫𝐞𝐞𝐳𝐢𝐧𝐠. "_ <br />
 
 　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
 <br />
@@ -9,7 +9,7 @@
 
 
 
-　　  [Atabook](https://forcas.atabook.org/)　　　　　　　　[Strawpage](https://4cas.straw.page/)　　　　　　　　　[Pronounspage](https://en.pronouns.page/@forcas_)　　　　　　　　[Listography](https://listography.com/5283121506?m=0580652416)
+　　  [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forcas.atabook.org/)　　　　　　　　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4cas.straw.page/)　　　　　　　　　[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@forcas_)　　　　　　　　[𝐀𝐋𝐢𝐬𝐭𝐨𝐠𝐫𝐚𝐩𝐡𝐲](https://listography.com/5283121506?m=0580652416)
 
 
 
