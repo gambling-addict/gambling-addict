@@ -1,11 +1,11 @@
-　　　　_Be nice and sign my atabook?_ <br />
+　　　　　　　　　　　　_Be nice and sign my atabook?_ <br />
 
-　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
+　　　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
 <br />
 
 
 
-　　　　　　　　　　　　![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif) <br />
+　　　　　　　　　　　　　　　　![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif) <br />
 
 
 
