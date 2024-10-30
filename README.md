@@ -1,6 +1,10 @@
 _Be nice and sign my atabook?_
 ![Woah](https://komarev.com/ghpvc/?username=gambling-addict)
-                                                                                                                                                                                         ![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)
+
+
+
+
+![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)
 
 
 
