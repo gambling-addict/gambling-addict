@@ -8,7 +8,7 @@ __my discord is: fforcass__ |just incase you want to talk or something
 
 
 
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text]((https://c.tenor.com/AzV1dvXcI3YAAAAd/tenor.gif))
 
 
 
