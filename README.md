@@ -7,6 +7,8 @@
 
 　　　　　　　　　　　　　　　![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif) <br />
 
+![Alt Text](https://media.tenor.com/rbvBpcaxKWEAAAAj/stars-galaxy.gif)
+
 
 
 　　　　　　　　　  [Atabook](https://forcas.atabook.org/)　　　　　　　　[Strawpage](https://4cas.straw.page/)　　　　　　　　　[Pronounspage](https://en.pronouns.page/@forcas_)　　　　　　　　[Listography](https://listography.com/5283121506?m=0580652416)
