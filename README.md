@@ -8,7 +8,7 @@ __my discord is: fforcass__ |just incase you want to talk or something
 
 
 
-![Alt Text]((https://c.tenor.com/AzV1dvXcI3YAAAAd/tenor.gif))
+![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)
 
 
 
