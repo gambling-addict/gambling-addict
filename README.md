@@ -5,9 +5,8 @@
 
 
 
-　　　　　　　　　　　　　　　![Alt Text](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif) <br />
+　　　　　　　　　　　　　　　![Alt Text](https://i.pinimg.com/originals/06/c8/a2/06c8a228c8946e8e79d30d5abbba3d19.gif) <br />
 
-![Alt Text](https://media.tenor.com/xIAMLhLZwXIAAAAi/sparkles-sparkle.gif)![Alt Text](https://pbs.twimg.com/media/GCIUkxVXAAApxhs.png)
 
 
 
