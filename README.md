@@ -1,8 +1,8 @@
-> i have absolutely nothing to announce!!! int with me if you want!! (i don't talk first)
+_Be nice and sign my atabook?_
 
 ![Woah](https://komarev.com/ghpvc/?username=gambling-addict)
 
-__my discord is: fforcass__ |just incase you want to talk or something
+
 
 
 
