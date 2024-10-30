@@ -10,7 +10,7 @@ _Be nice and sign my atabook?_ <br />
 
 
 
-[Atabook]((https://forcas.atabook.org/))
+[Atabook](https://forcas.atabook.org/)
 
 
 
