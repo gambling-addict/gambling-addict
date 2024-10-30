@@ -1,9 +1,6 @@
 　　　　　　　　　　　𓊆  _" 𝐂𝐨𝐥𝐝 𝐰𝐚𝐭𝐞𝐫 𝐟𝐞𝐞𝐥𝐬 𝐰𝐚𝐫𝐦 𝐰𝐡𝐞𝐧 𝐲𝐨𝐮𝐫 𝐡𝐚𝐧𝐝𝐬 𝐚𝐫𝐞 𝐟𝐫𝐞𝐞𝐳𝐢𝐧𝐠. "_  𓊇 <br />
 
 　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
-<br />
-
-
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![Alt Text](https://i.pinimg.com/originals/06/c8/a2/06c8a228c8946e8e79d30d5abbba3d19.gif) <br />
 
