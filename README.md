@@ -8,7 +8,7 @@ __my discord is: fforcass__ |just incase you want to talk or something
 
 
 
-<img src="[https://media.tenor.com/2ewHqOqCxHgAAAAi/shark.gif" alt="a computer generated image of a shark swimming on a white background"](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)/>
+<img src="[https://media.tenor.com/2ewHqOqCxHgAAAAi/shark.gif" alt="a computer generated image of a shark swimming on a white background"](https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)>
 
 
 
