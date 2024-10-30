@@ -8,7 +8,7 @@ __my discord is: fforcass__ |just incase you want to talk or something
 
 
 
-<img src="(https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)>
+<img src="(https://media1.tenor.com/m/AzV1dvXcI3YAAAAd/eloquent-countenance-forcas.gif)/>
 
 
 
