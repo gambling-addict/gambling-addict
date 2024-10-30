@@ -7,7 +7,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![Alt Text](https://i.pinimg.com/originals/06/c8/a2/06c8a228c8946e8e79d30d5abbba3d19.gif) <br />
 
-════════════  [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forcas.atabook.org/)　　　　　　　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4cas.straw.page/)　　　　　　　　[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@forcas_)　　　　　　　[𝐋𝐢𝐬𝐭𝐨𝐠𝐫𝐚𝐩𝐡𝐲](https://listography.com/5283121506?m=0580652416)  ════════════
+═════════  [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forcas.atabook.org/)　　　　　　　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4cas.straw.page/)　　　　　　　　[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@forcas_)　　　　　　　[𝐋𝐢𝐬𝐭𝐨𝐠𝐫𝐚𝐩𝐡𝐲](https://listography.com/5283121506?m=0580652416)  ═════════
 
 
 
