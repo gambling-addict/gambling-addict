@@ -2,7 +2,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=a7dy6ttd2hrv6zemln72x9zdw&count={count})<br />
+　　　　　　　　　　　　　　　　　　　　　　![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=a7dy6ttd2hrv6zemln72x9zdw)<br />
 
 ═════════  [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forcas.atabook.org/)　　　　　　　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4cas.straw.page/)　　　　　　　　[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@forcas_)　　　　　　　[𝐋𝐢𝐬𝐭𝐨𝐠𝐫𝐚𝐩𝐡𝐲](https://listography.com/5283121506?m=0580652416)  ═════════
 
