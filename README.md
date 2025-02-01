@@ -4,7 +4,7 @@
 　　　　　　　　　　　　　　　　　　　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict)<br />
 　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=novatorem&show_offline=false&background_color=0d0a1f&interchange=false&bar_color=4e6cb1&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&redirect=true)<br />
 
-═════════  [𝐀𝐭𝐚𝐛𝐨𝐨𝐤](https://forcas.atabook.org/)　　　　　　　[𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://4cas.straw.page/)　　　　　　　　[𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@forcas_)　　　　　　　[𝐋𝐢𝐬𝐭𝐨𝐠𝐫𝐚𝐩𝐡𝐲](https://listography.com/5283121506?m=0580652416)  ═════════
+═════════  [Atabook](https://forcas.atabook.org/)　　　　　　　[Strawpage](https://4cas.straw.page/)　　　　　　　　[PronounsPage](https://en.pronouns.page/@forcas_)　　　　　　　[Listography](https://listography.com/5283121506?m=0580652416)  ═════════
 
 
 
