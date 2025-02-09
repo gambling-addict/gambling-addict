@@ -4,6 +4,7 @@ Work in Progress!!
 
   _"I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on"._ <br /> 
 
+     <span style="color:red;">your text here > </span>
 
 
    　　　　　　　　　　　　　　　　　　  　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict&color=72001d&label=Hi+sillies)<br />
