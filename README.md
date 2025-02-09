@@ -1,4 +1,4 @@
-remaking this soon!
+![image](https://github.com/user-attachments/assets/91879ca9-4b95-4078-a716-6b0ee3880c37)
 
 
 𓊆  _"When I choose to see the good side of things, I'm not being naïve. It is strategic and necessary. It's how I've learned to survive through everything. "_ -EEA@O 𓊇 <br />
