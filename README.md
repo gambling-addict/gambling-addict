@@ -2,7 +2,9 @@ Work in Progress!!
 ![image](https://github.com/user-attachments/assets/91879ca9-4b95-4078-a716-6b0ee3880c37)
 
 
-  _"I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on"._ <br /> 
+  #_"I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on"._ <br /> 
+<style>H1{color:Blue;}</style>
+
 
 
    　　　　　　　　　　　　　　　　　　  　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict&color=72001d&label=Hi+sillies)<br />
@@ -12,7 +14,5 @@ Work in Progress!!
 ═════════  [Atabook](https://forcas.atabook.org/)　　　　　　　[Strawpage](https://4cas.straw.page/)　　　　　　　　[PronounsPage](https://en.pronouns.page/@forcas_)　　　　　　　[Listography](https://listography.com/5283121506?m=0580652416)  ═════════
 
 
-<p>
-Quack quack
-<text style="color: red">ERROR</text>
-</p>
+
+
