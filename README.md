@@ -1,3 +1,5 @@
+remaking this soon!
+
 
 𓊆  _"When I choose to see the good side of things, I'm not being naïve. It is strategic and necessary. It's how I've learned to survive through everything. "_ -EEA@O 𓊇 <br />
 　
