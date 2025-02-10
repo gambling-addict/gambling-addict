@@ -3,5 +3,4 @@
 
 
 
-![image](https://github.com/user-attachments/assets/604eff1d-137b-48fa-a344-972af9548891)
 
