@@ -1,4 +1,5 @@
-###### "I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on."![image](https://github.com/user-attachments/assets/9c7ff4b5-04b1-4dc9-91f0-bafa242f1da3)
+###### "I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on."![tumblr_c40cc099098f0e58a5fb0f5b50dbdde9_7e0c8505_75 (1)](https://github.com/user-attachments/assets/a3e76ab5-c51e-4f6c-8bfa-fbf450ff35ce)
+
 
 
 ![image](https://github.com/user-attachments/assets/91879ca9-4b95-4078-a716-6b0ee3880c37)
