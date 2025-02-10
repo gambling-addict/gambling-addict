@@ -4,9 +4,6 @@ Work in Progress!!
 
   _"I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on"._ <br /> 
 
-<font color="red">Please Note that this is a work in progress repository!</font>
-
-
    　　　　　　　　　　　　　　　　　　  　　　　![Woah](https://komarev.com/ghpvc/?username=gambling-addict&color=72001d&label=Hi+sillies)<br />
 
 　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=novatorem&show_offline=false&background_color=0d0a1f&interchange=false&bar_color=4e6cb1&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&redirect=true)<br />
