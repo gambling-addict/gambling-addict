@@ -11,7 +11,6 @@
 ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀At[abook](https://forcas.atabook.org/)⠀⠀⠀⠀⠀⠀[Strawpage](https://4cas.straw.page/)⠀⠀⠀⠀⠀⠀[Pronoun](https://pronouns.cc/@Forcas)sCC⠀⠀⠀⠀⠀⠀[Listography](https://listography.com/5283121506?m=0580652416)  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div align="center"> 
