@@ -13,4 +13,6 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*As stated in a few of my links , I struggle to understand a lot of social cues/whether to take something seriously or not. I apologise if I have offended anyone by reading the room wrong.*
+<div align="center"> 
+*As stated in a few of my links , I struggle to understand a lot of social cues/whether to take something seriously or not. I apologise if I have offended anyone by reading the room wrong.*
+<div/>
