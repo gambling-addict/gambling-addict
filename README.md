@@ -10,7 +10,8 @@
 ![image](https://64.media.tumblr.com/2246244b94d78bf7457f026a8540c399/30eceecc888caafe-20/s100x200/e74399f9c8786393ad0d999ce14f851e5867fcf2.gifv)
 
 
-⠀[Atabook](https://forcas.atabook.org/)⠀•⠀ [Strawpage](https://s-01-ver-bullet.straw.page/) ⠀ •⠀  [PronounsCC](https://pronouns.cc/@Forcas) ⠀ •  ⠀[Listography](https://listography.com/5283121506?m=0580652416)  
+
+[Atabook](https://forcas.atabook.org/)•[Strawpage](https://s-01-ver-bullet.straw.page/)•[PronounsCC](https://pronouns.cc/@Forcas)•[Listography](https://listography.com/5283121506?m=0580652416)  
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀
