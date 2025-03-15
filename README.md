@@ -1,4 +1,5 @@
 ######    ⠀  "I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on."
+![image](https://github.com/user-attachments/assets/9663bfba-c48f-4f5a-b0f6-a31b4879c32b)
 
 
   ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/769f6970-a2ac-4b21-b5d4-0629b76fb043)
