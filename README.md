@@ -1,4 +1,4 @@
-######    ⠀  "I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on."
+######    ⠀  "You'll be my baby and we'll fly away. And I'll fly with you!"
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎ ‎  ‎ ‎ ‎ ![image](https://64.media.tumblr.com/2246244b94d78bf7457f026a8540c399/30eceecc888caafe-20/s100x200/e74399f9c8786393ad0d999ce14f851e5867fcf2.gifv)
