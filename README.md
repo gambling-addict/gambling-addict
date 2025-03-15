@@ -1,11 +1,8 @@
 ######    ⠀  "I don't know. The only thing I do know... is that we have to be kind. Please, be kind - especially when we don't know what's going on."
 
- 
+![image](https://github.com/user-attachments/assets/05690e33-04bc-4a66-9be6-a31b4a2f2c32)
 
-
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![tumblr_c40cc099098f0e58a5fb0f5b50dbdde9_7e0c8505_75 (1)](https://github.com/user-attachments/assets/a3e76ab5-c51e-4f6c-8bfa-fbf450ff35ce) 
-
-  ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/769f6970-a2ac-4b21-b5d4-0629b76fb043
+  ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/769f6970-a2ac-4b21-b5d4-0629b76fb043)
 
 
 ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀At[abook](https://forcas.atabook.org/)⠀⠀⠀⠀⠀⠀[Strawpage](https://s-01-ver-bullet.straw.page/)⠀⠀⠀⠀⠀⠀[Pronoun](https://pronouns.cc/@Forcas)sCC⠀⠀⠀⠀⠀⠀[Listography](https://listography.com/5283121506?m=0580652416)  
