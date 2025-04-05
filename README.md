@@ -1,31 +1,24 @@
 ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 -
-
-
+![image](https://64.media.tumblr.com/d6927e6df805e674b4a5e38e2860c714/a8594b455ad67a70-1f/s2048x3072/eaedd3aff952aeb3cc6f506fac2dafa270192fa0.pnj)
 <div align="center"> 
- 
-######    ⠀  "You'll be my baby and we'll fly away. And I'll fly with you!"
+
+ ![image](https://64.media.tumblr.com/801df8a5d520e10b0a7c8a04a5150e66/c61556e974eaddd6-b8/s500x750/727c2ecb8e5db24de4d613ed0403051ade8d7812.gif) 
+
 <div/>
 
+ 
+ ######    ⠀  ⠀ ᴰʳⁱᵛⁱⁿᵍ ʷⁱᵗʰ ᵐʸ ᵈᵃʳˡⁱⁿᵍ ᶠᵃˢᵗᵉʳ ᵗʰᵃⁿ ᴵ ˢʰᵒᵘˡᵈ
 
-![image](https://64.media.tumblr.com/2246244b94d78bf7457f026a8540c399/30eceecc888caafe-20/s100x200/e74399f9c8786393ad0d999ce14f851e5867fcf2.gifv)
 
 
-[Atabook](https://forcas.atabook.org/) • [Strawpage](https://s-01-ver-bullet.straw.page/) • [PronounsCC](https://pronouns.cc/@Forcas) • [Listography](https://listography.com/5283121506?m=0580652416) • [Alt Strawpage](https://jablko.straw.page/)
+[Atabook](https://forcas.atabook.org/) ‣ [Strawpage](https://s-01-ver-bullet.straw.page/) ‣ [PronounsCC](https://pronouns.cc/@Forcas) ‣ [Listography](https://listography.com/5283121506?m=0580652416) 
 
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center"> 
- 
-𝘈𝘴 𝘴𝘵𝘢𝘵𝘦𝘥 𝘪𝘯 𝘮𝘺 ​̲𝘗​̲𝘳​̲𝘰​̲𝘯​̲𝘰​̲𝘶​̲𝘯​̲𝘴​̲𝘊​̲𝘊 , 𝘐 𝘴𝘵𝘳𝘶𝘨𝘨𝘭𝘦/𝘢𝘮 𝘴𝘭𝘰𝘸 𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘴𝘰𝘤𝘪𝘢𝘭 𝘤𝘶𝘦𝘴/𝘸𝘩𝘦𝘵𝘩𝘦𝘳 𝘵𝘰 𝘵𝘢𝘬𝘦 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘴𝘦𝘳𝘪𝘰𝘶𝘴𝘭𝘺 𝘰𝘳 𝘯𝘰𝘵. 𝘐'𝘮 𝘴𝘰𝘳𝘳𝘺 𝘪𝘧 𝘐 𝘩𝘢𝘷𝘦 𝘰𝘧𝘧𝘦𝘯𝘥𝘦𝘥 𝘢𝘯𝘺𝘰𝘯𝘦 𝘣𝘺 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘦 𝘳𝘰𝘰𝘮 𝘸𝘳𝘰𝘯𝘨.  𝘐 𝘳𝘦𝘤𝘰𝘮𝘮𝘦𝘯𝘥 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 [𝘣𝘺𝘪](https://rentry.co/Uno_BYI) 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨/𝘣𝘦𝘧𝘳𝘪𝘦𝘯𝘥𝘪𝘯𝘨
+
+##### *I struggle/am slow to pick up on social cues, whether to take something seriously or not. I am sorry if I had offended anyone by reading the room wrong. I reccomend reading [byi](https://rentry.co/Uno_BYI) before befriending.*
 <div/>
-                                                                                                                                                                                                                                                                                     
- ![image](https://github.com/user-attachments/assets/4552a4a5-d083-4a70-a773-77caf2dff63e)
-###### ᵈᶦᵛᶦᵈᵉʳ ᵇʸ @ᵇᵘᶜᶜᶦⁿᶦᵉˣᵉ ᵒⁿ ᵗᵘᵐᵇˡʳ
 
-
-  
-
-[peak video btw](https://www.youtube.com/watch?v=gRF6Yq8JZB0)
-
-
+![image](https://64.media.tumblr.com/93edd69c8d40da06bc3675af6b7c54cf/6a4882f7400b4ba7-b9/s75x75_c1/20e244949b842a7d6add264e62b61cd731f27811.gifv)
