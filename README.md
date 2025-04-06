@@ -14,11 +14,14 @@
 
 [Atabook](https://forcas.atabook.org/) ‣ [Strawpage](https://s-01-ver-bullet.straw.page/) ‣ [PronounsCC](https://pronouns.cc/@Forcas) ‣ [Listography](https://listography.com/5283121506?m=0580652416) 
 
-⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+
+⠀⠀
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center"> 
 
-##### *I struggle/am slow to pick up on social cues, whether to take something seriously or not. I am sorry if I had offended anyone by reading the room wrong. I reccomend reading [byi](https://rentry.co/Uno_BYI) before befriending.*
+<code style="color : purple">I struggle/am slow to pick up on social cues, whether to take something seriously or not. I am sorry if I had offended anyone by reading the room wrong. I reccomend reading [byi](https://rentry.co/Uno_BYI) before befriending.</code>
 <div/>
 
 ![image](https://64.media.tumblr.com/93edd69c8d40da06bc3675af6b7c54cf/6a4882f7400b4ba7-b9/s75x75_c1/20e244949b842a7d6add264e62b61cd731f27811.gifv)
