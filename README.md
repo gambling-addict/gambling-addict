@@ -27,3 +27,6 @@
 ![image](https://64.media.tumblr.com/93edd69c8d40da06bc3675af6b7c54cf/6a4882f7400b4ba7-b9/s75x75_c1/20e244949b842a7d6add264e62b61cd731f27811.gifv)
 
 [https://www.youtube.com/watch?v=9Jsu8HMWCbo](https://www.youtube.com/watch?v=9Jsu8HMWCbo)
+
+
+SOS I DON'T KNOW WHO TO MENTION?? If you want to be mentioned in the github thingy-m-bob uh ask on my ata/strawpage smiles
