@@ -2,7 +2,7 @@
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 -
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=3b0070&label=Cool+people)
+![](https://komarev.com/ghpvc/?username=gambling-addict&color=3b0070&label=Cool+people)
 ![image](https://64.media.tumblr.com/d6927e6df805e674b4a5e38e2860c714/a8594b455ad67a70-1f/s2048x3072/eaedd3aff952aeb3cc6f506fac2dafa270192fa0.pnj)
 <div align="center"> 
 
