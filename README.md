@@ -5,7 +5,7 @@
  
    
 ###### [ㅤ ㅤ I have cuddle comfort, feel free to C+H anytime
-###### [ㅤ ㅤ I have a of a dni list, but summarised it's simply don't be a jerk
+###### [ㅤ ㅤ I have a dni list, but summarised it's simply don't be a jerk
 ###### [ㅤ ㅤ I often need tonetags, unless if we're close friends
 ###### [ㅤ ㅤ Feel free to interact unless I'm on dni(u)
 ###### [ㅤ ㅤ I'm a *minor*
