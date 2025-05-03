@@ -8,7 +8,6 @@
 ###### [ㅤ ㅤ I have a dni list, but summarised it's simply don't be a jerk
 ###### [ㅤ ㅤ I often need tonetags, unless if we're close friends
 ###### [ㅤ ㅤ Feel free to interact unless I'm on dni(u)
-###### [ㅤ ㅤ I'm a *minor*
 ###### [ㅤ ㅤ I struggle with expressing gratitude, please don't take this personally
 ###### [ㅤ ㅤ I make a lot of suggestive jokes and can be unintentionally rude or insensitive
 ###### [ㅤ ㅤ I don't usually start conversations/interactions first
