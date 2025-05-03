@@ -15,7 +15,7 @@
 
 
 
-[Atabook](https://forcas.atabook.org/) ‣ [Strawpage](https://s-01-ver-bullet.straw.page/) ‣ [PronounsCC](https://pronouns.cc/@Forcas) ‣ [Listography](https://listography.com/5283121506?m=0580652416) ‣ [Tamanotchi](https://tamanotchi.world/21967c) 
+[Atabook](https://forcas.atabook.org/) ‣ [Strawpage](https://s-01-ver-bullet.straw.page/) ‣ [PronounsCC](https://pronouns.cc/@Accardi) ‣ [Tamanotchi](https://tamanotchi.world/21967c) 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <div align="center"> 
