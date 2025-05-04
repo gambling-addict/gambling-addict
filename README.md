@@ -49,3 +49,10 @@
 
 ![811-811-game](https://github.com/user-attachments/assets/a0e980c8-d2f9-48cb-9bce-5804008b676b)
 
+</div>
+
+<div align="right">
+
+![](https://komarev.com/ghpvc/?username=gambling-addict&color=f7a648&label=Cool+people)
+
+</div>
