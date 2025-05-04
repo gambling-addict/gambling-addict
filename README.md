@@ -56,3 +56,5 @@
 ![](https://komarev.com/ghpvc/?username=gambling-addict&color=f7a648&label=Cool+people)
 
 </div>
+
+star this repository, 128 for bronze.... only ≈100 away,..!
