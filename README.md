@@ -46,7 +46,7 @@
 
  ###### ...
  
- [Atabook](https://forcas.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤ[Strawpage](https://s-01-ver-bullet.straw.page/)ㅤㅤㅤㅤㅤㅤㅤ[PronounsCC](https://pronouns.cc/@Juliek)ㅤㅤㅤㅤㅤㅤㅤ[Tamanotchi](https://tamanotchi.world/21967c) 
+ [Atabook](https://forcas.atabook.org/)ㅤㅤㅤㅤㅤ[Strawpage](https://s-01-ver-bullet.straw.page/)ㅤㅤㅤㅤㅤ[PronounsCC](https://pronouns.cc/@Juliek)ㅤㅤㅤㅤㅤ[Tamanotchi](https://tamanotchi.world/21967c)ㅤㅤㅤㅤㅤ[Rentry](https://rentry.co/rot_in_paradise)
 
 ![811-811-game](https://github.com/user-attachments/assets/a0e980c8-d2f9-48cb-9bce-5804008b676b)
 
