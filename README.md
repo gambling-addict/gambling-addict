@@ -25,7 +25,7 @@
 
 [Tamanotchi](https://tamanotchi.world/21967c)ㅤㅤㅤㅤ
 
-[Rentry](https://rentry.co/rot_in_paradise)   ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀<img src="https://i.imgur.com/jpEUdyz.gif"> 
+[Rentry](https://rentry.co/rot_in_paradise)   ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ 
 
 
 </div>
