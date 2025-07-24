@@ -36,7 +36,10 @@
 
 </div>
 
-<div>
- "Hey! I'm on your DNI/thin ice list, why are you following me? "
-I follow over 20k people, evidently, and I have a current goal of 50k. I follow *blindly*, meaning you're just a number to me unless you're my friend.
-</div>
+
+
+
+
+
+
+
