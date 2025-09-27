@@ -21,7 +21,7 @@
 
 [Strawpage](https://s-01-ver-bullet.straw.page/)ㅤㅤㅤㅤ
 
-[PronounsCC](https://pronouns.cc/@Juliek)ㅤㅤㅤ
+[PronounsCC](https://pronouns.cc/@8_11)ㅤㅤㅤ
 
 [Tamanotchi](https://tamanotchi.world/21967c)ㅤㅤㅤㅤ
 
