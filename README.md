@@ -1,4 +1,4 @@
-⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=8c340b&label=⠀⠀)   $${\color{#8c340b}⠀better⠀viewed⠀on⠀pc }$$
+⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=8c340b&label=⠀⠀)   $${\color{#8c340b}⠀best⠀viewed⠀on⠀pc }$$
 
 <div align="center">
 <img src="https://media.discordapp.net/attachments/1438951842544353413/1443675582369103982/image0.gif?ex=6929ef29&amp;is=69289da9&amp;hm=c1146ecb73440d23632d84841750264b9fab4f9b6df922030dfe5c5b66a543fe&amp;=&amp;width=551&amp;height=551" width="700" height="600" alt="Image"/>
