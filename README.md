@@ -1,7 +1,7 @@
 ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=8c340b&label=⠀⠀)   $${\color{#8c340b}⠀best⠀viewed⠀on⠀pc }$$
 
 <div align="center">
-<img src="https://media.discordapp.net/attachments/1438951842544353413/1443675582369103982/image0.gif?ex=6929ef29&amp;is=69289da9&amp;hm=c1146ecb73440d23632d84841750264b9fab4f9b6df922030dfe5c5b66a543fe&amp;=&amp;width=551&amp;height=551" width="700" height="600" alt="Image"/>
+<img src="https://files.catbox.moe/nd87de.gif" width="700" height="600" alt="Image"/>
 
  $${\color{#8c340b}᭡⠀⠀⠀⠀⠀ryker,⠀uno+many⠀other}$$ [names](https://pronouns.cc/@8_11) $${\color{#8c340b}⠀.⠀ױ }$$ <br/>
  $${\color{#8c340b}⠀⠀⠀most⠀likely⠀offtb⠀or⠀w⠀friends⠀⠀⠀⠀⠀⠀(˶ˆ꒳ˆ˵)
@@ -14,12 +14,12 @@ $${\color{#8c340b} }$$
 ⠀⠀⠀<br/>
 ⠀⠀⠀
 <a href="https://tamanotchi.world/21967c">
-<img src="https://s8.ezgif.com/tmp/ezgif-8d8b9ab3d6d76218.png" width="150"/>
+<img src="https://files.catbox.moe/vz02n4.png" width="200"/>
 </a>
 ⠀⠀⠀⠀⠀⠀<a href="https://forcas.atabook.org/">
-<img src="https://s8.ezgif.com/tmp/ezgif-8a1ced8fc2b9ef10.png" width="150"/>
+<img src="https://files.catbox.moe/esjt6w.png" width="150"/>
 </a>
 ⠀⠀⠀⠀⠀⠀<a href="https://s-01-ver-bullet.straw.page/">
-<img src="https://s8.ezgif.com/tmp/ezgif-8cea071bfeb99a07.png" width="150"/>
+<img src="https://files.catbox.moe/8ccjqx.png" width="150"/>
 </a> <br/>
-$${\color{#8c340b} 1. tamanotchi ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀2. ata ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀3. strwpg}$$
+$${\color{#8c340b} 1. tamanotchi ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀2. ata ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀3. strwpg}$$
