@@ -1,25 +1,17 @@
-⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=8c340b&label=⠀⠀)   $${\color{#8c340b}⠀best⠀viewed⠀on⠀pc }$$
+⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=bb8b67&label=⠀⠀)   
 
 <div align="center">
-<img src="https://files.catbox.moe/nd87de.gif" width="700" height="600" alt="Image"/>
 
- $${\color{#8c340b}᭡⠀⠀⠀⠀⠀ryker,⠀uno+many⠀other}$$ [names](https://pronouns.cc/@8_11) $${\color{#8c340b}⠀.⠀ױ }$$ <br/>
- $${\color{#8c340b}⠀⠀⠀most⠀likely⠀offtb⠀or⠀w⠀friends⠀⠀⠀⠀⠀⠀(˶ˆ꒳ˆ˵)
-⠀⠀}$$ <br/>
-![ezgif-51184195287fcf48 (1)](https://github.com/user-attachments/assets/7fd40d19-0965-449e-8e8e-ee852ed898f7) <br/>
-$${\color{#8c340b} ⠀⠀.he⠀him ⠀⠀⠀⠀∿}$$
-$${\color{#8c340b} }$$ 
-<br/>
+[ata](https://forcas.atabook.org)ㅤ  ㅤ  [prnscc](https://pronouns.cc/@8_11)ㅤ  ㅤ  [strwpg](https://s-01-ver-bullet.straw.page/)
+ 
+ <p>
+<img src="https://files.catbox.moe/ovayz1.png" width="450" height="400" alt="Image"/>
+</p>
+</br>
 
-⠀⠀⠀<br/>
-⠀⠀⠀
-<a href="https://tamanotchi.world/21967c">
-<img src="https://files.catbox.moe/vz02n4.png" width="200"/>
-</a>
-⠀⠀⠀⠀⠀⠀<a href="https://forcas.atabook.org/">
-<img src="https://files.catbox.moe/esjt6w.png" width="150"/>
-</a>
-⠀⠀⠀⠀⠀⠀<a href="https://s-01-ver-bullet.straw.page/">
-<img src="https://files.catbox.moe/8ccjqx.png" width="150"/>
-</a> <br/>
-$${\color{#8c340b} 1. tamanotchi ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀2. ata ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀3. strwpg}$$
+<p>𝘙𝘺𝘬𝘦𝘳  ㅤ    $${\color{#bb8b67}or}$$   ㅤ ㅤ 𝐅𝐨𝐫𝐜𝐚𝐬 </p>
+<p>Heㅤ   ㅤ   $${\color{#923b58} 𝐓𝐡𝐞𝐲}$$ </p>
+<p>$${\color{#763061} 𝟓 teen }$$ </p>
+</br>
+<img src="https://files.catbox.moe/74bbx8.gif" width="50" height="70" />
+</div>
