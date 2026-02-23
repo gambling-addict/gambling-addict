@@ -2,7 +2,7 @@
 
 <div align="center">
 
-[ata](https://forcas.atabook.org)ㅤ  ㅤ  [prnscc](https://pronouns.cc/@8_11)ㅤ  ㅤ  [strwpg](https://s-01-ver-bullet.straw.page/)
+[ata](https://forcas.atabook.org)ㅤ   ㅤ  ㅤ  [prnscc](https://pronouns.cc/@8_11)ㅤ      ㅤㅤ  [strwpg](https://s-01-ver-bullet.straw.page/)ㅤ     ㅤ ㅤ  [gunslol](https://guns.lol/leucole)
  
  <p>
 <img src="https://files.catbox.moe/ovayz1.png" width="450" height="400" alt="Image"/>
