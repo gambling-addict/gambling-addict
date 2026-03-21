@@ -41,7 +41,7 @@ he / they
   <img src="https://files.catbox.moe/u4xvpz.png" width="220">
 </a>
 
-<img src="https://files.catbox.moe/5tra03.png">
+<img src="https://files.catbox.moe/9j4p7f.png">
 
 <details>
   <summary> art of merle my oc ehehehe.,,,</summary>
