@@ -1,18 +1,71 @@
-⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=bb8b67&label=interviews)   
+⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=00bbbb&label=crimes)   
+
+<img src="https://files.catbox.moe/i6wuy6.png" width="1000" height="200" align="center">
 
 <div align="center">
-
-[ata](https://forcas.atabook.org)ㅤ   ㅤ  ㅤ  [prnscc](https://pronouns.cc/@8_11)ㅤ      ㅤㅤ  [strwpg](https://s-01-ver-bullet.straw.page/)ㅤ     ㅤ ㅤ  [gunslol](https://guns.lol/leucole)
  
- <p>
-<img src="https://files.catbox.moe/ovayz1.png" width="450" height="400" alt="Image"/>
-</p>
-</br>
+<img src="https://files.catbox.moe/r520ti.png" width="450" height="400" align="left"> 
+ 
 
-<p>𝘳𝘺𝘬𝘦𝘳  ㅤ    $${\color{#bb8b67}or}$$   ㅤ ㅤ 𝐟𝐨𝐫𝐜𝐚𝐬 </p>
-<p>heㅤ   ㅤ   $${\color{#923b58} 𝐭𝐡𝐞𝐲}$$ </p>
-<p>$${\color{#763061} 𝟓 teen }$$ </p>
-</br>
-<img src="https://files.catbox.moe/74bbx8.gif" width="50" height="70" />
-</div>
-6k followers woo
+
+
+
+
+    
+<br><br>
+<pre>
+    
+ryker
+ <img src="https://files.catbox.moe/prpbh7.png">
+ 15
+he / they
+
+</pre>
+
+
+<img src="https://files.catbox.moe/5tra03.png">
+
+<a href="https://forcas.atabook.org">
+  <img src="https://files.catbox.moe/93qc2f.png" width="120">
+</a>
+
+<a href="https://pronouns.cc/@8_11">
+  <img src="https://files.catbox.moe/214ks8.png" width="220">
+</a>
+
+<a href="https://s-01-ver-bullet.straw.page">
+  <img src="https://files.catbox.moe/uvda2w.png" width="220">
+</a>
+
+<a href="https://guns.lol/leucole">
+  <img src="https://files.catbox.moe/u4xvpz.png" width="220">
+</a>
+
+<img src="https://files.catbox.moe/5tra03.png">
+
+<details>
+  <summary> art of merle my oc ehehehe.,,,</summary>
+  huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain and the ever so sexy @gambling-addict 
+ <br>
+<img src="https://files.catbox.moe/sok9ss.webp" width="350">
+ <img src="https://files.catbox.moe/j5l37c.webp" width="350">
+ <img src="https://files.catbox.moe/9cl2wl.webp" width="350">
+ <img src="https://files.catbox.moe/uaaxrt.webp" width="350">
+ <img src="https://files.catbox.moe/y1xztf.webp" width="350">
+ <img src="https://files.catbox.moe/p08pck.webp" width="350">
+ <img src="https://files.catbox.moe/9kpvjg.webp" width="350">
+ <img src="https://files.catbox.moe/p6tf4a.webp" width= "350">
+ <img src="https://files.catbox.moe/ppr6i7.webp" width="350">
+ <img src="https://files.catbox.moe/2c2xyn.webp" width="350">
+ <img src="https://files.catbox.moe/catq8v.webp" width="350">
+ <img src="https://files.catbox.moe/9idccc.webp" width="350">
+ <img src="https://files.catbox.moe/9idccc.webp" width="350">
+ <img src="https://files.catbox.moe/ljjmhv.webp" width="350">
+ <img src="https://files.catbox.moe/ryq1pv.webp" width="350">
+ <img src="https://files.catbox.moe/ljjmhv.webp" width="350">
+ <img src="https://files.catbox.moe/84dwsf.webp" width="350">
+ <img src="https://files.catbox.moe/vonfwv.webp" width="350">
+ <img src="https://files.catbox.moe/mzx09u.webp" width="350">
+ <img src="https://files.catbox.moe/2dmww0.webp" width="350">
+ <img src="https://files.catbox.moe/2dmww0.webp" width="350">
+</details>
