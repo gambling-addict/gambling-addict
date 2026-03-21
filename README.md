@@ -47,27 +47,24 @@ he / they
   <summary> art of merle my oc ehehehe.,,,</summary>
   huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain and the ever so sexy @gambling-addict 
  <br>
-<img src="https://files.catbox.moe/sok9ss.webp" width="350">
+ <img src="https://files.catbox.moe/sok9ss.webp" width="350">
  <img src="https://files.catbox.moe/j5l37c.webp" width="350">
  <img src="https://files.catbox.moe/9cl2wl.webp" width="350">
  <img src="https://files.catbox.moe/uaaxrt.webp" width="350">
  <img src="https://files.catbox.moe/y1xztf.webp" width="350">
  <img src="https://files.catbox.moe/p08pck.webp" width="350">
  <img src="https://files.catbox.moe/9kpvjg.webp" width="350">
- <img src="https://files.catbox.moe/p6tf4a.webp" width= "350">
+ <img src="https://files.catbox.moe/p6tf4a.webp" width="350">
  <img src="https://files.catbox.moe/ppr6i7.webp" width="350">
  <img src="https://files.catbox.moe/2c2xyn.webp" width="350">
  <img src="https://files.catbox.moe/catq8v.webp" width="350">
  <img src="https://files.catbox.moe/9idccc.webp" width="350">
- <img src="https://files.catbox.moe/9idccc.webp" width="350">
- <img src="https://files.catbox.moe/ljjmhv.webp" width="350">
  <img src="https://files.catbox.moe/ryq1pv.webp" width="350">
  <img src="https://files.catbox.moe/ljjmhv.webp" width="350">
  <img src="https://files.catbox.moe/84dwsf.webp" width="350">
  <img src="https://files.catbox.moe/vonfwv.webp" width="350">
  <img src="https://files.catbox.moe/mzx09u.webp" width="350">
- <img src="https://files.catbox.moe/2dmww0.webp" width="350">
- <img src="https://files.catbox.moe/2dmww0.webp" width="350">
+ <img src="https://files.catbox.moe/86slv3.png" width="350">
 </details>
 <br>
 
