@@ -69,3 +69,6 @@ he / they
  <img src="https://files.catbox.moe/2dmww0.webp" width="350">
  <img src="https://files.catbox.moe/2dmww0.webp" width="350">
 </details>
+<br>
+
+<img src="https://github.com/user-attachments/assets/5440c013-e73d-4ec9-a105-6f730016edaf" width="150">
