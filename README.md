@@ -45,7 +45,7 @@ he / they
 
 <details>
   <summary> art of merle my oc ehehehe.,,,</summary>
-  huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain and the ever so sexy @gambling-addict 
+  huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain(also hi i stole two lines of their code) and the ever so sexy @gambling-addict 
  <br>
  <img src="https://files.catbox.moe/sok9ss.webp" width="350">
  <img src="https://files.catbox.moe/j5l37c.webp" width="350">
