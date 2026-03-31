@@ -46,6 +46,8 @@ he / they
 <details>
   <summary> art of merle my oc ehehehe.,,,</summary>
   huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain(also hi i stole two lines of their code) and the ever so sexy @gambling-addict 
+
+ and ignore little virgin chud confetti :/ hate that guy sooo much 
  <br>
  <img src="https://files.catbox.moe/sok9ss.webp" width="350">
  <img src="https://files.catbox.moe/j5l37c.webp" width="350">
@@ -70,6 +72,7 @@ he / they
  <img src="https://files.catbox.moe/l52bth.webp" width="350">
  <img src="https://files.catbox.moe/7b83bk.webp" width="350">
  <img src="https://files.catbox.moe/4li032.webp" width="350">
+ <img src="https://files.catbox.moe/m8p24b.webp" width="350">
 </details>
 <br>
 
