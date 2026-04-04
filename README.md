@@ -77,3 +77,5 @@ he / they
 <br>
 
 <img src="https://github.com/user-attachments/assets/5440c013-e73d-4ec9-a105-6f730016edaf" width="150">
+
+also, i upload AND ONE songs onto my Audiomack https://audiomack.com/dakota-drevis , if you wanna suggest a song for me to add (doesn't have to be and one) just lmk on my atabook
