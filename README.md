@@ -79,6 +79,9 @@ he / they
  <img src="https://files.catbox.moe/2vxo63.webp" width="350">
  <img src="https://files.catbox.moe/b913ss.webp" width="350">
  <img src="https://files.catbox.moe/xnl1b4.png" width="350">
+ <img src="https://files.catbox.moe/q35dnq.webp" width="350">
+ <img src="https://files.catbox.moe/q93baa.webp" width="350">
+
 </details>
 <br>
 
