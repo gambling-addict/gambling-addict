@@ -1,10 +1,10 @@
 ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=00bbbb&label=crimes)   
 
-<img src="https://files.catbox.moe/i6wuy6.png" width="1000" height="200" align="center">
+<img src="https://files.catbox.moe/i6wuy6.png" width="1000" height="100" align="center">
 
 <div align="center">
  
-<img src="https://files.catbox.moe/r520ti.png" width="450" height="400" align="left"> 
+<img src="https://files.catbox.moe/r520ti.png" width="350" height="300" align="left"> 
  
 
 
