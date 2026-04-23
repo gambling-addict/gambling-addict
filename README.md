@@ -1,53 +1,30 @@
-⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=00bbbb&label=crimes)   
+⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=fed3c5&label=)   
+<div align="center">
+<img src="https://files.catbox.moe/n8ynoe.jpeg" width="750" height="400" align="center">
 
-<img src="https://files.catbox.moe/i6wuy6.png" width="1000" height="100" align="center">
+ <br> 
+
+
+[ata](https://forcas.atabook.org)⠀⠀⠀⠀[strwpg](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)⠀⠀⠀⠀[gunslol](https://guns.lol/leucole)
+
+
+<br>
+ ⠀⠀
+
+ 
+<img src="https://files.catbox.moe/qwe6sy.png"> 
+
+</div>
 
 <div align="center">
+i'm ryker. i'm 15. i love platypuses.
+ <p>
+  ⠀⠀
+ </p>⠀
  
-<img src="https://files.catbox.moe/r520ti.png" width="350" height="300" align="left"> 
- 
-
-
-
-
-
-    
-<br><br>
-<pre>
-    
-ryker
- <img src="https://files.catbox.moe/prpbh7.png">
- 15
-he / they
-
-</pre>
-
-
-<img src="https://files.catbox.moe/5tra03.png">
-
-<a href="https://forcas.atabook.org">
-  <img src="https://files.catbox.moe/93qc2f.png" width="120">
-</a>
-
-<a href="https://pronouns.cc/@8_11">
-  <img src="https://files.catbox.moe/214ks8.png" width="220">
-</a>
-
-<a href="https://s-01-ver-bullet.straw.page">
-  <img src="https://files.catbox.moe/uvda2w.png" width="220">
-</a>
-
-<a href="https://guns.lol/leucole">
-  <img src="https://files.catbox.moe/u4xvpz.png" width="220">
-</a>
-
-<img src="https://files.catbox.moe/9j4p7f.png">
-
-<details>
-  <summary> art of merle, my oc</summary>
-  huge thanks for my friend's fanart,, @Printerbattle @darkenedfountain(also hi i stole two lines of their code) and the ever so sexy @gambling-addict 
-
- and ignore little virgin chud confetti :/ hate that guy sooo much 
+ <details>
+ <summary> merle slop</summary>
+  huge thanks for my friend's fanart,, @Printerbattle (and their friend), @kyuparin and the ever so sexy @gambling-addict 
  <br>
  <img src="https://files.catbox.moe/sok9ss.webp" width="350">
  <img src="https://files.catbox.moe/j5l37c.webp" width="350">
@@ -95,7 +72,3 @@ he / they
 
 </details>
 <br>
-
-<img src="https://github.com/user-attachments/assets/5440c013-e73d-4ec9-a105-6f730016edaf" width="150">
-
-also, i upload AND ONE songs onto my Audiomack https://audiomack.com/dakota-drevis , if you wanna suggest a song for me to add (doesn't have to be and one) just lmk on my atabook
