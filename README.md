@@ -17,7 +17,9 @@
 </div>
 
 <div align="center">
-i'm ryker. i'm 15. i love platypuses.
+i'm ryker. i'm 15. i love platypuses.<p>
+ my prnscc has the most info, my strawpage is so outdated but i still like it so it's ok.
+</p>
  <p>
   ⠀⠀
  </p>⠀
