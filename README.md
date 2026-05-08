@@ -1,7 +1,6 @@
 ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=fed3c5&label=)   
 <div align="center">
-<img src="https://files.catbox.moe/n8ynoe.jpeg" width="750" height="400" align="center">
-
+<img src="https://files.catbox.moe/0xmlgl.png">
  <br> 
 
 
@@ -12,21 +11,22 @@
  ⠀⠀
 
  
-<img src="https://files.catbox.moe/qwe6sy.png"> 
+<img src="https://files.catbox.moe/kusjqg.png">
 
 </div>
 
 <div align="center">
-i'm ryker. i'm 15. i love platypuses.<p>
+hi i'm ryker and i #love platypuses. i'm 15, just a baby🥺🥺🥺<p>
  my prnscc has the most info, my strawpage is so outdated but i still like it so it's ok.
 </p>
  <p>
   ⠀⠀
  </p>⠀
  
+<details>
 
-
-
+<img src="https://files.catbox.moe/nywfmp.jpg">
 
 </details>
 <br>
+
