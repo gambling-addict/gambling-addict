@@ -23,10 +23,5 @@ hi i'm ryker and i #love platypuses. i'm 15, just a baby🥺🥺🥺<p>
   ⠀⠀
  </p>⠀
  
-<details>
-
-<img src="https://files.catbox.moe/nywfmp.jpg">
-
-</details>
 <br>
 
