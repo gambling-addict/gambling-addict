@@ -11,8 +11,6 @@
  ⠀⠀
 
  
-<img src="https://files.catbox.moe/kusjqg.png">
-
 </div>
 
 <div align="center">
