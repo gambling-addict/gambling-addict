@@ -1,7 +1,7 @@
 ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=dbb6c7&label=)   
 <div align="center">
- As they stare guiltily and dumbfounded, the curtain falls.
-<img src="https://files.catbox.moe/9rg48q.png">
+ As they stare guiltily and dumbfounded, the curtain falls. <p></p>
+<img src="https://files.catbox.moe/x5b28g.png">
  <br> 
 
 
