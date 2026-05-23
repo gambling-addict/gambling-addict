@@ -16,6 +16,7 @@
 
 <div align="center">
 use whatever name you want i think.... i'm 15 and i love platypuses </p>
+ my strawpage is out of date. i just like the design and can't be bothered to fix it. i'll fix it. once day. maybe.
  <p>
   ⠀⠀
  </p>⠀
