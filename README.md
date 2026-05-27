@@ -21,7 +21,7 @@
 <p></p>
 <p></p>
 <img src="https://files.catbox.moe/m7vnej.png" width="18%" align="right" />
-<img src="https://files.catbox.moe/p2isy8.png" width="710" height="377" align="left" >
+<img src="https://files.catbox.moe/p2isy8.png" width="700" height="377" align="left" >
 <p></p>
 <p></p>
 <img src="https://files.catbox.moe/50en1f.png">
