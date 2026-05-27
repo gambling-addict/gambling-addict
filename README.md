@@ -27,3 +27,4 @@
 <img src="https://files.catbox.moe/50en1f.png">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=spotify-embed&show_offline=true&background_color=bababa&interchange=false&profanity=false&hide_remaster=false&bar_color=604e00&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+ 
