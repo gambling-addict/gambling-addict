@@ -1,4 +1,4 @@
-mobile and lightmode unfriendly. who even uses lightmode. big 26 btw
+mobile unfrinedly porbably
 <div align="center">
 <img src="https://files.catbox.moe/skoa4y.png" width="500">
  <p></p>
