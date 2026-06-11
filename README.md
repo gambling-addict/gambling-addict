@@ -1,6 +1,6 @@
-mobile unfrinedly porbably
 <div align="center">
-<img src="https://files.catbox.moe/skoa4y.png" width="500">
+<img src="https://files.catbox.moe/6hpigm.png" width="500">
+
  <p></p>
 
  $${\color{#b29d94}hipㅤswing, hipㅤswing..}$$ 
@@ -17,6 +17,7 @@ mobile unfrinedly porbably
 
  ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=b4c2e8&label=&style=plastic)   
 <br>
+<img src="https://files.catbox.moe/skoa4y.png" width="500">
  
  $${\color{#793736}imㅤ15}$$
  
