@@ -4,12 +4,12 @@ can someone give me robux. rhanks. i'm playerwp1
 
  <p></p>
 
- $${\color{#b29d94}drive-in, moveㅤme..}$$ 
+ $${\color{#b29d94}there'sㅤnoㅤsuchㅤthingㅤasㅤperfection!}$$ 
  <p></p>
 <img src="https://files.catbox.moe/6md5ru.png" width="300" height="350">
  <p></p>
  
- $${\color{#adb4f9}..driveㅤintoㅤme!}$$
+ $${\color{#adb4f9}I'mㅤtheㅤexception!}$$
  <br>
  <p></p>
   <img src="https://files.catbox.moe/na7oc0.gif" width="75">
