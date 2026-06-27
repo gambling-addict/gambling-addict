@@ -32,7 +32,7 @@ can someone give me robux. rhanks. i'm playerwp1
 <br>
 <br>
 
-[ata](https://forcas.atabook.org)⠀⠀⠀⠀[strwpg](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)
+[ata](https://forcas.atabook.org)⠀⠀⠀⠀[strwpg](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[2nd strwpg](https://deadestplate.straw.page/)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)
 
 <br>
 <br>
