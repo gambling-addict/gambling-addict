@@ -24,7 +24,7 @@ can someone give me robux. rhanks. i'm playerwp1
  
  $${\color{#bbbab8}unstableㅤpersonality}$$
  
- $${\color{#b9c6d5}i'mㅤmeanㅤ+ㅤiㅤmakeㅤsuggestiveㅤandㅤinsultingㅤjokes}$$
+ $${\color{#b9c6d5}sensitiveㅤpeopleㅤDNIIIIㅤDDDDDNNNNNNNNIIIIIIIIIIiㅤiㅤmakeㅤs-s-s-soㅤmuchㅤmeanㅤjokesㅤforㅤurㅤwittleㅤsnowflakeㅤhearts}$$
  
  $${\color{#adb5f9}c+hㅤall,ㅤwheneverㅤandㅤitsㅤsooooㅤencouraged}$$
  
