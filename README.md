@@ -1,41 +1,39 @@
-can someone give me robux. rhanks. i'm playerwp1
 <div align="center">
-<img src="https://files.catbox.moe/6hpigm.png" width="500">
+<img src="https://files.catbox.moe/a3f3f1.webp" width="550" align="center">
+<br> <img src="https://files.catbox.moe/w5u3ie.png" width="500" align="center">
 
- <p></p>
+ ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=2a1c2a&label=&style=flat)
+<br>
 
- $${\color{#b29d94}there'sㅤnoㅤsuchㅤthingㅤasㅤperfection!}$$ 
- <p></p>
-<img src="https://files.catbox.moe/6md5ru.png" width="300" height="350">
- <p></p>
- 
- $${\color{#adb4f9}I'mㅤtheㅤexception!}$$
+<img src="https://files.catbox.moe/o9ct5v.png" align="right" height="400">
+
+
+$${\color{#be9528} "ㅤwhereㅤyourㅤdreamsㅤgetㅤreal}$$
+$${\color{#5d445d} orㅤyourㅤbloodㅤgetsㅤspilledㅤ"}$$
+
  <br>
- <p></p>
-  <img src="https://files.catbox.moe/na7oc0.gif" width="75">
- <br>
-<br>
-
- ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=b4c2e8&label=&style=plastic)   
-<br>
-<img src="https://files.catbox.moe/skoa4y.png" width="500">
- 
- $${\color{#793736}imㅤ15}$$
- 
- $${\color{#bbbab8}unstableㅤpersonality}$$
- 
- $${\color{#b9c6d5}sensitiveㅤpeopleㅤDNIIIIㅤDDDDDNNNNNNNNIIIIIIIIIIiㅤiㅤmakeㅤs-s-s-soㅤmuchㅤmeanㅤjokesㅤforㅤurㅤwittleㅤsnowflakeㅤhearts}$$
- 
- $${\color{#adb5f9}c+hㅤall,ㅤwheneverㅤandㅤitsㅤsooooㅤencouraged}$$
- 
-<br>
-<br>
-<br>
-
-[ata](https://forcas.atabook.org)⠀⠀⠀⠀[strwpg](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[2nd strwpg](https://deadestplate.straw.page/)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)
+<img src="https://files.catbox.moe/zsxyij.gif" width="75" align="centre">
 
 <br>
-<br>
-<img src="https://files.catbox.moe/swk8g9.gif"> <img src="https://files.catbox.moe/rm95mw.gif" width="175"> <img src="https://files.catbox.moe/gxxky5.gif"> <img src="https://files.catbox.moe/z8xlr8.gif"> <img src="https://files.catbox.moe/ztmxkc.gif"> <img src="https://files.catbox.moe/cb5lgv.gif" width="150""> <img src="https://files.catbox.moe/djilkb.webp" width="130" height="20"> <img src="https://files.catbox.moe/llld1n.gif" width="150"> <img src="https://files.catbox.moe/eyp548.webp"> <img src="https://files.catbox.moe/s5rq79.gif">  <img src="https://files.catbox.moe/t1lyfn.webp" width="150"> <img src="https://files.catbox.moe/hwskkz.gif"> <img src="https://files.catbox.moe/xwidtc.gif" width="155"> <img src="https://files.catbox.moe/ja33kr.gif"> <img src="https://files.catbox.moe/rk1v1j.gif"> <img src="https://files.catbox.moe/v5j4f5.webp"> <img src="https://files.catbox.moe/8dqm57.gif" width="150"> <img src="https://files.catbox.moe/mw44dr.gif"> <img src="https://files.catbox.moe/qgak0x.gif"> <img src="https://files.catbox.moe/3bt1gj.gif"> <img src="https://files.catbox.moe/8f65xj.webp"> <img src="https://files.catbox.moe/prbgdz.webp"> <img src="https://files.catbox.moe/sfrkif.gif"> <img src="https://files.catbox.moe/c0d93o.webp"> <img src="https://files.catbox.moe/h5zxtd.webp"> <img src="https://files.catbox.moe/oj5lno.webp" width="150"> <img src="https://files.catbox.moe/onsgzx.webp"> <img src="https://files.catbox.moe/5oabti.gif"> <img src="https://files.catbox.moe/ucsqo3.webp"> <img src="https://files.catbox.moe/ad3qvo.webp"> <img src="https://files.catbox.moe/3l34a9.webp"> <img src="https://files.catbox.moe/fyju76.webp"> <img src="https://files.catbox.moe/a2v3yj.gif"> <img src="https://files.catbox.moe/lxjg0n.gif">
+<table>
+  <tr>
+    <td> 
+     
+ㅤ ㅤ 
+ㅤㅤ[ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[alt straw](https://deadestplate.straw.page/)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤ<br>
+ㅤ ㅤ 
+
+   </td>
+  </tr>
+</table>
 
 
+
+
+
+
+
+
+https://github.com/user-attachments/assets/98b1525b-9d99-4377-9c1e-97ccba7706f4
+
+i still want roubux. give robux to playerwp1. why? i jsut need it trust em
