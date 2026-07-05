@@ -21,12 +21,14 @@ $${\color{#5d445d} orㅤyourㅤbloodㅤgetsㅤspilledㅤ"}$$
      
 ㅤ ㅤ 
 ㅤㅤ[ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[alt straw](https://deadestplate.straw.page/)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤ<br>
-[my stupid ass friends](https://stupidassfriends.straw.page/)
 ㅤ ㅤ 
 
    </td>
   </tr>
 </table>
+
+[my stupid ass friends](https://stupidassfriends.straw.page/)
+
 
 
 
