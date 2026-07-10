@@ -1,42 +1,35 @@
 <div align="center">
-<img src="https://files.catbox.moe/a3f3f1.webp" width="550" align="center">
-<br> <img src="https://files.catbox.moe/w5u3ie.png" width="500" align="center">
+ 
+![](https://komarev.com/ghpvc/?username=gambling-addict&color=756b7c&label=&style=flat)<br>
 
- ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&color=2a1c2a&label=&style=flat)
+<img src="https://files.catbox.moe/bbjul4.png" width="400" height="150"><br>
+$${\color{#756b7c}i'mㅤsorryㅤiㅤwasn'tㅤtheㅤfriendㅤyouㅤneeded.ㅤiㅤwasㅤjustㅤtheㅤfriendㅤwhoㅤwasㅤalwaysㅤthere.}$$
+
+<img src="https://files.catbox.moe/2exan5.png">
+<br>
+<br>
 <br>
 
-<img src="https://files.catbox.moe/o9ct5v.png" align="right" height="400">
-
-
-$${\color{#be9528} "ㅤwhereㅤyourㅤdreamsㅤgetㅤreal}$$
-$${\color{#5d445d} orㅤyourㅤbloodㅤgetsㅤspilledㅤ"}$$
-
- <br>
-<img src="https://files.catbox.moe/zsxyij.gif" width="75" align="centre">
-
+<img src="https://files.catbox.moe/l3rpms.png" align="left"> <br>
+<br>
+<br>
 <br>
 <table>
   <tr>
     <td> 
-     
+
 ㅤ ㅤ 
-ㅤㅤ[ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[alt straw](https://deadestplate.straw.page/)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤ<br>
+ㅤㅤ $${\color{#756b7c}auggieㅤ,ㅤryker}$$ㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤ $${\color{#74808d}15}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+ㅤㅤㅤㅤㅤㅤ<img src="https://files.catbox.moe/nk2xy5.png">
+
+ㅤㅤㅤ [ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤㅤㅤ
+
 ㅤ ㅤ 
 
    </td>
   </tr>
 </table>
-
-[my stupid ass friends](https://stupidassfriends.straw.page/)
-
-
-
-
-
-
-
-
-
-https://github.com/user-attachments/assets/98b1525b-9d99-4377-9c1e-97ccba7706f4
-
-i still want roubux. give robux to playerwp1. why? i jsut need it trust em
