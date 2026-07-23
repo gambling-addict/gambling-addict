@@ -5,7 +5,7 @@
 <br>
 <br>
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%202"  width="500">
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%202"  width="450">
 <br>
 <br>
 
