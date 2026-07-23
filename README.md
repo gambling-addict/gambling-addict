@@ -1,11 +1,11 @@
 <div align="center">
  
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%201" align="left" height="600">
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%201" align="left" height="650">
 
 <br>
 <br>
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%202"  width="500">
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%202"  width="450">
 <br>
 <br>
 
