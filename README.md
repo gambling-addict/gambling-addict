@@ -1,35 +1,42 @@
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=gambling-addict&color=756b7c&label=&style=flat)<br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%201" align="left" height="650">
 
-<img src="https://files.catbox.moe/bbjul4.png" width="400" height="150"><br>
-$${\color{#756b7c}i'mㅤsorryㅤiㅤwasn'tㅤtheㅤfriendㅤyouㅤneeded.ㅤiㅤwasㅤjustㅤtheㅤfriendㅤwhoㅤwasㅤalwaysㅤthere.}$$
-
-<img src="https://files.catbox.moe/2exan5.png">
-<br>
 <br>
 <br>
 
-<img src="https://files.catbox.moe/l3rpms.png" align="left"> <br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%202"  width="625">
 <br>
 <br>
+
+
+![](https://komarev.com/ghpvc/?username=gambling-addict&color=c07d78&label=⠀⠀⠀⠀⠀𐂯⠀⠀⠀⠀⠀&style=flat)<br>
 <br>
+
+
 <table>
   <tr>
-    <td> 
+    <td>
+     ㅤㅤㅤ
+<div align="center">
+     
+ ㅤㅤㅤ $${\color{#7a6359}forcasㅤ.ㅤryker}$$ㅤㅤㅤㅤㅤ
 
-ㅤ ㅤ 
-ㅤㅤ $${\color{#756b7c}auggieㅤ,ㅤryker}$$ㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤ $${\color{#74808d}15}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤ $${\color{#4e4740}15}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤ<img src="https://files.catbox.moe/nk2xy5.png">
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%203" width="100"> 
+<br>
+<br>
 
-ㅤㅤㅤ [ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤㅤㅤ
+ㅤㅤㅤ [新book](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤㅤㅤ
 
 ㅤ ㅤ 
 
    </td>
   </tr>
 </table>
+<br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Bones/Bones%204" height="100" width="300">
+
+[alt straw](https://deadestplate.straw.page)⠀⠀⠀⠀[my friends!!!](https://stupidassfriends.straw.page)
