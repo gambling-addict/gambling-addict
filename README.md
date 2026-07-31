@@ -29,5 +29,22 @@
 
 <br>
 <br>
-
+ <table>
+  <tr>
+    <td>
+     
 ㅤㅤ [新book](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤ
+ 
+   </td>
+  </tr>
+</table>
+   </td>
+  </tr>
+</table>
+
+ <details>
+  <summary> </summary>
+
+thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame) and [pt-awards](https://github.com/pt-awards)
+</details>
+
