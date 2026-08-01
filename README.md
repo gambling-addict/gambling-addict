@@ -45,6 +45,6 @@
  <details>
   <summary> </summary>
 
-thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame) and [pt-awards](https://github.com/pt-awards)
+thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards) and [fans-town](https://github.com/fans-town)
 </details>
 
