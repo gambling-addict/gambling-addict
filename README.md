@@ -45,7 +45,7 @@
  <details>
   <summary> </summary>
 
-thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards), [fans-town](https://github.com/fans-town) and [pt-hallf-of-media](https://github.com/pt-hall-of-media)
+thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards), [fans-town](https://github.com/fans-town) and [pt-hallf-of-media](https://github.com/pt-hall-of-media) <br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/OG%20star" width="100">
 </details>
 
