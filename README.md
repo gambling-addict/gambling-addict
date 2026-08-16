@@ -7,7 +7,6 @@
 <br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ig" width="550">
 <br>
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/-" width="500">
 <br>
 <br>
 
