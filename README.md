@@ -7,8 +7,11 @@
 <br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ig" width="550">
 <br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/DUDE%20I%20KEEP%20GETTING%20IT%20WRONG%20*HANGS*" width="500">
 <br>
 <br>
+
+
 
 <a href="https://forcas.atabook.org/">
   <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ata" width="175">
