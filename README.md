@@ -1,51 +1,40 @@
-
 <div align="center">
- 
- ![](https://komarev.com/ghpvc/?username=gambling-addict&color=880000&label=🎱&style=flat)<br>
 
- <img src="https://file.garden/amIhX8QeMk0LFMpD/Eddie/Eddie.3">
- <img src="https://file.garden/amIhX8QeMk0LFMpD/Eddie/Eddie.1" width="500" align="left">
-
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
- 
- <table>
-  <tr>
-    <td>
-     ㅤㅤㅤ
-<div align="center">
-     
- ㅤㅤㅤ $${\color{#000000}forcasㅤ.}$$ $${\color{#44090a}ryker}$$ㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤ $${\color{#880000}15}$$ㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤ
+ ![](https://komarev.com/ghpvc/?username=gambling-addict&color=646174&style=flat-square&label=hypnotised)  
 
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/Eddie/Eddie.4" width="50"> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Nunito&weight=650&size=25&duration=3150&pause=1000&color=395E76&center=true&vCenter=true&width=435&lines=pokaz+mi+niebo+a+wtedy+ja+;bede+tecza+gdy+otworzysz+swe+oczy;pozwol+mi+swiecic+kiedy+slonca+brak;byc+nadzieja+kiedy+szukasz+pomocy+" alt="Typing SVG" /></a>
+<br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ig" width="550">
+<br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/-" width="500">
+<br>
+<br>
+
+<a href="https://forcas.atabook.org/">
+  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/ata" width="175">
+</a>ㅤㅤ
+<a href="https://s-01-ver-bullet.straw.page/">
+  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/straw" width="175">
+</a>ㅤㅤ
+<a href="https://pronouns.cc/@8_11">
+  <img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/p.cc" width="175">
+</a>
+
 
 <br>
-<br>
- <table>
-  <tr>
-    <td>
-     
-ㅤㅤ [新book](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤ
- 
-   </td>
-  </tr>
-</table>
-   </td>
-  </tr>
-</table>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/hi%20guys" width="550">
+
+
+
+
 
  <details>
   <summary> </summary>
 
+
+<img src="https://file.garden/amIhX8QeMk0LFMpD/Leucole/zzz" width="200">
+
 thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards), [fans-town](https://github.com/fans-town), [pt-hall-of-media](https://github.com/pt-hall-of-media) and [pt-loveforfictional](https://github.com/pt-loveforfictional)<br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/OG%20star" width="100">
 </details>
-
