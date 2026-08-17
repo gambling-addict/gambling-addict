@@ -1,6 +1,6 @@
 <div align="center">
 
- ![](https://komarev.com/ghpvc/?username=gambling-addict&color=646174&style=flat-square&label=hypnotised)  
+ ![](https://komarev.com/ghpvc/?username=gambling-addict&color=646174&style=flat-square&label=hypnotized)  
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Nunito&weight=650&size=25&duration=3150&pause=1000&color=395E76&center=true&vCenter=true&width=435&lines=pokaz+mi+niebo+a+wtedy+ja+;bede+tecza+gdy+otworzysz+swe+oczy;pozwol+mi+swiecic+kiedy+slonca+brak;byc+nadzieja+kiedy+szukasz+pomocy+" alt="Typing SVG" /></a>
