@@ -40,3 +40,4 @@
 thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https://github.com/pt-awards), [fans-town](https://github.com/fans-town), [pt-hall-of-media](https://github.com/pt-hall-of-media) and [pt-loveforfictional](https://github.com/pt-loveforfictional)<br>
 <img src="https://file.garden/amIhX8QeMk0LFMpD/OG%20star" width="100">
 </details>
+SO close to 10k followers~~~ follow me~~~
