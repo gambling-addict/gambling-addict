@@ -19,7 +19,7 @@
 
 ㅤㅤㅤㅤㅤ<img src="https://file.garden/amIhX8QeMk0LFMpD/ifrogt/nghhh" width="150">
 
-ㅤㅤㅤ [ata](https://forcas.atabook.org)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤ ㅤ
+ㅤㅤㅤ [ata](https://s01verbullet.atabook.org/)⠀⠀⠀⠀[straw](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[prnscc](https://pronouns.cc/@8_11)ㅤㅤㅤ ㅤ
 
 ㅤ ㅤ 
 
