@@ -24,4 +24,4 @@ thanks [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-awards](https:
 <br>
 
  
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=454d40&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=454d40&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&redirect=true) yep yep yep this github account is code rotten god save us all
