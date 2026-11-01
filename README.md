@@ -19,7 +19,7 @@
 <br>
 <br>
 <br>
-⠀⠀⠀⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/ata)](https://forcas.atabook.org)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/straw)](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/prnscc)](https://pronouns.cc/@8_11)
+⠀⠀⠀⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/ata)](https://s01verbullet.atabook.org/)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/straw)](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/prnscc)](https://pronouns.cc/@8_11)
 ㅤㅤㅤ
 
 
