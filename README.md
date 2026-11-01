@@ -5,11 +5,10 @@
 
 <br>
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/gong" height="400" align="left"> <br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/gong" height="425" align="left"> <br>
 <br>
 
 ㅤ<img src="https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/yapp" height="50">
-<br>
 <br>
 
 ⠀⠀⠀⠀⠀⠀ㅤryanㅤㅤ
@@ -17,7 +16,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀5teenㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ⠀⠀⠀⠀he him
-<br>
 <br>
 <br>
 <br>
@@ -29,7 +27,6 @@
 
 
 
-<br>
 <br>
 <br>
 
