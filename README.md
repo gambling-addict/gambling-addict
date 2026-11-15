@@ -1,15 +1,16 @@
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=gambling-addict&color=fef5eb&label=&style=flat)<br>
+![](https://komarev.com/ghpvc/?username=gambling-addict&color=94d1c8&label=&style=flat)<br>
 
 
 <br>
 
-<img src="https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/gong" height="400" align="left"> <br>
+<img src="https://file.garden/amIhX8QeMk0LFMpD/github%20slop%202/sloppp" height="450" align="left"> <br>
 <br>
 
-ㅤ<img src="https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/yapp" height="50">
+ㅤ<img src="https://file.garden/amIhX8QeMk0LFMpD/github%20slop%202/tumblr_1201b4dc1881262e7bf8f38a8639b6df_14192988_1280-modified__fliter--green-pink-acid__channel--blue__mode--color-burn.png" height="50">
 <br>
+
 
 ⠀⠀⠀⠀⠀⠀ㅤryanㅤㅤ
                 
@@ -19,7 +20,7 @@
 <br>
 <br>
 <br>
-⠀⠀⠀⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/ata)](https://s01verbullet.atabook.org/)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/straw)](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/current%20github%20slop/prnscc)](https://pronouns.cc/@8_11)
+⠀⠀⠀⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/github%20slop%202/ata)](https://s01verbullet.atabook.org/)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/github%20slop%202/straw)](https://s-01-ver-bullet.straw.page)⠀⠀⠀⠀[![.](https://file.garden/amIhX8QeMk0LFMpD/github%20slop%202/prruhh)](https://pronouns.cc/@8_11)
 ㅤㅤㅤ
 
 
