@@ -33,4 +33,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&cover_image=true&theme=natemoo-re&show_offline=true&background_color=250000&interchange=false&profanity=false&hide_remaster=false&bar_color=250000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=a7dy6ttd2hrv6zemln72x9zdw&redirect=true)
 
-[check out my vinyls and cds (it's not all of them, still adding](https://www.discogs.com/user/leucole/collection)
+[check out my vinyls and cds (it's not all of them, still adding) also bit.ly isn't some kind of weird i'm forcing you all to get i just want to see how many people are checking out my crap wow this is probably a long link but i had to get it clear. oh and also if anyone knows a better method to count how many people open my links, just hmu](https://bit.ly/4C7R4yH)
